@@ -1,6 +1,6 @@
 <p align="center" ><img width="500" height="400" alt="1000023379" src="https://github.com/user-attachments/assets/5566552d-d637-44a3-a7de-17c69add49c3" /></p>
 
-<p align="center" ><img width="500" height="400" alt="1000023375" src="https://github.com/user-attachments/assets/f6383d9e-1ac9-4b2d-a489-6a68ff56e7e6" /></p>
+<p align="center" ><img width="500" height="500" alt="1000023375" src="https://github.com/user-attachments/assets/f6383d9e-1ac9-4b2d-a489-6a68ff56e7e6" /></p>
 
  <p align="center">${\textsf{\color{#5a485f}𝒆𝒄𝒍𝒊𝒑𝒔𝒆 ✧ 𝒏𝒚𝒂 }}$
 
