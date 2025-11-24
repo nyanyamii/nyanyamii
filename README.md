@@ -17,7 +17,12 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=yvoisen&color=b26e9a&style=for-the-badge&label=++++++puppies++++++&base=4274"></img></p>
  <br> 
- <p align="center" ><img width="500" height="400" alt="1000023380" src="https://github.com/user-attachments/assets/d355b1d4-2c13-47ec-a7d6-520a227d1574" /></p>
+
+ 
+<p align="center" ><img width="500" height="400" alt="1000023380" src="https://github.com/user-attachments/assets/d355b1d4-2c13-47ec-a7d6-520a227d1574" /></p>
 
 
 ##  <p align="center">${\textsf{\color{#875F42}ME}}$ AND ${\textsf{\color{#2E4356} MY GF!! }}$ APPRECIATION !!
+![1000023489](https://github.com/user-attachments/assets/ec6eb119-db0b-4820-9652-2f455e759621)
+![1000023490](https://github.com/user-attachments/assets/ffcb63ed-ef64-45f2-b2ee-a9346f0853d9)
+
