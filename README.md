@@ -22,7 +22,7 @@
 <p align="center" ><img width="500" height="400" alt="1000023380" src="https://github.com/user-attachments/assets/d355b1d4-2c13-47ec-a7d6-520a227d1574" /></p>
 
 
-##  <p align="center">${\textsf{\color{#875F42}ME}}$ AND ${\textsf{\color{#2E4356} MY GF!! }}$ APPRECIATION !!
+##  <p align="center">${\textsf{\color{#875F42}MY GF}}$ AND ${\textsf{\color{#2E4356} ME!! }}$ APPRECIATION !!
 > <p align="center"> credits are in pictures..
 ![1000023489](https://github.com/user-attachments/assets/ec6eb119-db0b-4820-9652-2f455e759621)
 ![1000023490](https://github.com/user-attachments/assets/ffcb63ed-ef64-45f2-b2ee-a9346f0853d9)
