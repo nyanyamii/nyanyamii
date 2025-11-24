@@ -23,6 +23,11 @@
 
 
 ##  <p align="center">${\textsf{\color{#875F42}ME}}$ AND ${\textsf{\color{#2E4356} MY GF!! }}$ APPRECIATION !!
+> <p align="center"> credits are in pictures..
 ![1000023489](https://github.com/user-attachments/assets/ec6eb119-db0b-4820-9652-2f455e759621)
 ![1000023490](https://github.com/user-attachments/assets/ffcb63ed-ef64-45f2-b2ee-a9346f0853d9)
+![1000023496](https://github.com/user-attachments/assets/86df02cb-b383-4f29-896a-7860e8b8b3ec)
+![1000023495](https://github.com/user-attachments/assets/6eec784b-ab97-44c3-98be-25d309bb4841)
+![1000023494](https://github.com/user-attachments/assets/5b1be343-d6c3-40d9-bdd1-3c537f92632b)
+![1000023493](https://github.com/user-attachments/assets/cdb4dfcc-26ef-4159-9d83-8574935ccdcb)
 
