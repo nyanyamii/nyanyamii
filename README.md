@@ -1,14 +1,9 @@
-<p align="center" ><img src="https://github.com/user-attachments/assets/07e4deef-10a3-4018-9e09-107f37ea5cdb" width="500"></p>
+<img src="https://64.media.tumblr.com/caa29cc4067c9b090375143a6b5ef473/899541f1b6452155-4f/s1280x1920/b9ce7d9fe9e6cac19296b4ccffe41efe921872c9.gifv" width="800">
 
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=7E05F1&center=true&width=435&lines=%E2%80%98just+doing+my+part...!%E2%80%99"/> </p>
 
-⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
-## <p align="center" >𝔞𝔟𝔬𝔲𝔱 𝔪𝔢</p>
-<p align="center"> 6𝔱𝔢𝔢𝔫 . 𝔣𝔱𝔪 ✧
-<p align="center"> 𝔟𝔭𝔡 + 𝔬𝔰𝔡𝔡-1𝔟 𝔰𝔶𝔰
-<p align="center"> 𝔦 𝔤𝔬 𝔟𝔶 𝔱𝔥𝔢𝔶 ⊹ 𝔱𝔥𝔢𝔪 𝔰𝔱𝔯𝔦𝔠𝔱𝔩𝔶. 
-<p align="center">𝔚𝔥𝔢𝔫 𝔯𝔢𝔣𝔢𝔯𝔯𝔦𝔫𝔤 𝔱𝔬 𝔪𝔢 𝔭𝔩𝔢𝔞𝔰𝔢 𝔲𝔰𝔢 𝔰𝔬𝔯𝔞  . 
-<p align="center"> 𝔠 + 𝔥 & 𝔴2𝔦 𝔞𝔳𝔞𝔦𝔩
-  
-⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
-<p align="center" ><img src="https://github.com/user-attachments/assets/c64a42f0-3aca-40a4-ad93-030b58cd8723" width="500"></p>
+<p align="center">${\textsf{\color{#952bff} Bassie Bloomington Kin ♡ }}$
 
+<p align="center">${\textsf{\color{#ba3aff} Dbls DNI / Iwec. }}$
+
+<p align="center">${\textsf{\color{#be47ff} system info on @multivator git }}$
