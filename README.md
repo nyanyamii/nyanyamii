@@ -15,3 +15,6 @@
 <p align="center"> <img src="https://media1.tenor.com/m/5DmFxbch64QAAAAd/blinkie-pyro-tf2.gif" width="500">
 <p align="center"> <img src="https://media1.tenor.com/m/M7wm19F8VVMAAAAd/blinkies-pride.gif" width="500"> 
 <p align="center"> <img src="https://media.tenor.com/HMkP_KIvflgAAAAj/blinkies-blinkie.gif" width="500">
+
+
+> The simple way or explaining 'ProShip' is, they SHIP AND LET SHIP. Meaning they dont care what you ship. Thanks.,
