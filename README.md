@@ -8,6 +8,16 @@
 
 <p align="center">${\textsf{\color{#be47ff} system info on @multivator git }}$
 
+
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31c7xprpbdpkrf4yvs52gle5h7ge&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31c7xprpbdpkrf4yvs52gle5h7ge&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false">
+  </a>
+</p>
+
+
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 # <p align="center">${\textsf{\color{#be47ff} blinkies. }}$ 
 <p align="center"> <img src="https://missskunky-graphics.neocities.org/assets/graphics/mine/blinkies/proship-antisdni.gif" width="500">
 <p align="center"> <img src="https://missskunky-graphics.neocities.org/assets/graphics/mine/blinkies/proship-sals.gif" width="500">
