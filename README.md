@@ -76,3 +76,18 @@
 ![1000029926](https://github.com/user-attachments/assets/0b2e546a-67db-41f6-a687-3d60d4627b81)
 ![1000029925](https://github.com/user-attachments/assets/a38da197-0cec-44c7-ad7b-87f5d88876ba)
 
+
+# <p align="center">${\textsf{\color{#ba3aff} sysboxes. }}$
+![1000029982](https://github.com/user-attachments/assets/8b4b2160-01f5-414f-89e9-93e38adc8c0a)
+![1000029981](https://github.com/user-attachments/assets/ae51c947-b46f-4e15-a8ba-9e7b78eec171)
+![1000029980](https://github.com/user-attachments/assets/d8545ec8-6e2f-49bf-b7be-b970225987af)
+![1000029979](https://github.com/user-attachments/assets/72fede59-2833-469b-a6b3-c2cb4fc1d9b0)
+![1000029978](https://github.com/user-attachments/assets/dc9e43dd-fb57-46a3-bc5f-7b10e266fdc4)
+![1000029977](https://github.com/user-attachments/assets/d7a0f289-de3a-49b6-8382-45ae7446a1d7)
+![1000029976](https://github.com/user-attachments/assets/4baa8750-6c72-42d4-938b-a0b467598f12)
+![1000029975](https://github.com/user-attachments/assets/a765b218-11d0-47b1-a161-1051419e0e05)
+![1000029974](https://github.com/user-attachments/assets/69ab7b5e-a226-4e5b-bac0-7c731a70641c)
+![1000029973](https://github.com/user-attachments/assets/57c34f81-aa90-4b0f-80d4-c4387c16c0a0)
+![1000029972](https://github.com/user-attachments/assets/ce2d884b-296b-4ded-9f81-221f0de92097)
+![1000029971](https://github.com/user-attachments/assets/6d1d1851-eb63-42a2-a667-cd395690bbbe)
+
