@@ -18,7 +18,11 @@
 
 
 ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
-# <p align="center">${\textsf{\color{#be47ff} blinkies. }}$ 
+</details>
+   <details>
+        <summary> <td>$${\color{#FFFFFF}\verb| blinkies ♡|}$$</td></summary>
+
+
 <p align="center"> <img src="https://missskunky-graphics.neocities.org/assets/graphics/mine/blinkies/proship-antisdni.gif" width="500">
 <p align="center"> <img src="https://missskunky-graphics.neocities.org/assets/graphics/mine/blinkies/proship-sals.gif" width="500">
 <p align="center"> <img src="https://64.media.tumblr.com/b6e01a9f5da45515c25ad827ae958822/e0bbc6405cd69338-50/s250x400/19ac5d59fe605cb904827a906dfca40ce3492cee.gifv" width="500">
@@ -29,8 +33,12 @@
 
 > The simple way or explaining 'ProShip' is, they SHIP AND LET SHIP. Meaning they dont care what you ship. Thanks.,
 
-# <p align="center">${\textsf{\color{#ba3aff} userboxes. }}$
- ![1000029967](https://github.com/user-attachments/assets/8f1e1474-2c52-4367-9c30-9687cedc4c0e)
+</details>
+   <details>
+        <summary> <td>$${\color{#FFFFFF}\verb| userboxes i relate to ♡|}$$</td></summary>
+ 
+     
+![1000029967](https://github.com/user-attachments/assets/8f1e1474-2c52-4367-9c30-9687cedc4c0e)
 ![1000029970](https://github.com/user-attachments/assets/ee68b066-05ee-4070-8060-f6a74d2e4c44)
 ![1000029969](https://github.com/user-attachments/assets/fd698207-9d56-4dc9-a324-d1fb595309ac)
 ![1000029968](https://github.com/user-attachments/assets/be2d4cae-60b4-4af6-bb74-9d512b98ed8a)
@@ -77,7 +85,11 @@
 ![1000029925](https://github.com/user-attachments/assets/a38da197-0cec-44c7-ad7b-87f5d88876ba)
 
 
-# <p align="center">${\textsf{\color{#ba3aff} sysboxes. }}$
+</details>
+   <details>
+        <summary> <td>$${\color{#FFFFFF}\verb| collective userboxes ♡|}$$</td></summary>
+
+
 ![1000029982](https://github.com/user-attachments/assets/8b4b2160-01f5-414f-89e9-93e38adc8c0a)
 ![1000029981](https://github.com/user-attachments/assets/ae51c947-b46f-4e15-a8ba-9e7b78eec171)
 ![1000029980](https://github.com/user-attachments/assets/d8545ec8-6e2f-49bf-b7be-b970225987af)
